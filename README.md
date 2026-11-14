@@ -77,6 +77,12 @@ https://pentesterlab.com/pro
 (2) US$25.99 instead of US$34.99 for students
 Deal valid: 24-29th November
 
+Wireless Operator -  Training Academy Black Friday \
+https://training.thexero.co.uk/blackfriday
+67% Off Black Friday Special
+No code needed, applied automatically at checkout
+Deal ends 1st December
+
 ## Mini Course Bundles:
 
 ## Hardware:
